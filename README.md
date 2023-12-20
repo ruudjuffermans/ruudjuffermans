@@ -1,4 +1,4 @@
-## Welcome to my personal page! 🧨🧨🧨
+## Welcome to my personal page!
 _Dive into my projects, and let's connect!_ 🤝
 
 
