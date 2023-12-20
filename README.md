@@ -1,7 +1,7 @@
 ## Welcome to my personal page!
 Dive into my projects, and let's connect! 🤝
 
-## Contact
+### Contact
 - [Instagram](https://www.instagram.com/rudy_j3/)
 - [LinkedIn](https://www.linkedin.com/in/r-j3/)
 
