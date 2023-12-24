@@ -4,5 +4,6 @@ _Dive into my projects, and let's connect!_ 🤝
 
 - [Instagram](https://www.instagram.com/rudy_j3/)
 - [LinkedIn](https://www.linkedin.com/in/r-j3/)
+- [ruudjuffermans.nl](https://www.ruudjuffermans.nl)
 
-For professional inquiries, reach out via email at [ruudjuf@gmail.com](mailto:ruudjuf@gmail.com).
+For professional inquiries, reach out via email at [me@ruudjuffermans.nl](mailto:me@ruudjuffermans.nl).
